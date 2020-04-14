@@ -10,4 +10,4 @@
 ## ⭐️ 👉 最新导航页 ：HttpS://sesetu.cc
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: sheeads@gmail.com （发送任意内容即可收到最新地址）
-### 谨记永久发布页哦，二师兄都记住了呢！HttpS://sesetu.net
+### 收藏永久发布页哦，时刻找到回家的路！HttpS://sesetu.net
